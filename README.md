@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lionheartinvests
+- 👋 Hi, I’m @chainfiknights
 - 👀 I’m interested in blockchain
 - 🌱 I’m currently learning money
 - 💞️ I’m looking to collaborate on new projects
